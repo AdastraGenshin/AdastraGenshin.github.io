@@ -1,0 +1,1 @@
+# AdastraGenshin.github.io
